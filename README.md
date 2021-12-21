@@ -2,6 +2,3 @@
 
 some balls
 
-## Poggers
-
-juicers incoming
